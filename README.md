@@ -1,1 +1,1 @@
-# faith
+know who to trust
